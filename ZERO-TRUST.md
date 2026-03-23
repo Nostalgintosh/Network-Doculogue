@@ -18,3 +18,5 @@ This is where the miliary completely failed the **golded rule**. Having a Top Se
 ## The 15-Minute rule
 To get rid of *should surface* by have at less 15-Minute in a secure paces to talk about.
   - *If you have **15-Minutes to talk,** you have **15-Minutes to walk***
+
+Making sure that all personal infomation is in private room or corner, and make sure that any enrich infomation that anyone can take for person use is either locked when needed or detelted when no longer needed.
